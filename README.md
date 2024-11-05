@@ -8,8 +8,6 @@
 
 - 📫 How to reach me **j.lakshitha0615@gamil.com**
 
-- 📄 Know about my experiences [linkedin.com/in/lakshitha-priyashan-69601928b](linkedin.com/in/lakshitha-priyashan-69601928b)
-
 - ⚡ Fun fact **Call me as JLP**
 
 <h3 align="left">Connect with me:</h3>
